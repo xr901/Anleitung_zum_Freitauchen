@@ -13,7 +13,7 @@ Durch Freitauchen kommt man in den Genuss eine Vielzahl von Lebewesen im Wasser,
 * Zugänglichkeit: mit wenig Ausrüstung können Küstenabschnitte und Korallenriffe betaucht werden. Auch ist nicht unbedingt eine Zertifizierung oder ein spezielles Training notwendig.
 * Einfachheit: Maske und Schnorchel passen gut in's Gepäck. Es müssen keine Flaschen durch Dritte befüllt und bereitgestellt werden. Auf Grund des aktiveren Tauchstils im Vergleich zum Scuba Diving, ist meist kein Neoprenanzug erforderlich.
 * Sicherheit: bei Tauchtiefen von 5-10 Metern kann jederzeit innerhalb von wenigen Sekunden schnell aufgetaucht werden ohne Gefahr zu laufen körperliche Schäden davonzutragen. So besteht nicht die Gefahr wie beim Scuba Diving, dass beim Auftauchen die Lunge platzen kann.
-* Bezahlbarkeit: mit einer Taucherbrille beginnt der Spaß. Mehr als eine Maske, Brille und Flossen braucht auch der fortgeschrittene Taucher nicht.
+* Bezahlbarkeit: mit einer Taucherbrille beginnt der Spaß. Mehr als eine Maske, Schnorchel und Flossen braucht auch der fortgeschrittene Taucher nicht.
 
 ## Ausrüstung
 
